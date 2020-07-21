@@ -1,5 +1,5 @@
 # Pinky-s_Birthday
-Happy birth day Hanhcuteee!!!
+Happy birthday Hanhcuteee!!!
 
 Download source code và tận hưởng nó một cách chậm rãi nhaaa :3
 
